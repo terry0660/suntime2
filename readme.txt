@@ -1,5 +1,5 @@
-2Â÷ ±ê Å×½ºÆ®
+2ì°¨ ê¹ƒ í…ŒìŠ¤íŠ¸ 
 
 happy
 today
-game
+games
